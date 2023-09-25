@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @amk218
-- 👀 I’m studying physics at Imperial College London
+- 👀 I’m a PhD student in High Energy Physics
 
 
 <!---
