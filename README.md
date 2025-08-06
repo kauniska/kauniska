@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @amk218
+- 👋 Hi, I’m Anni
 - 👀 I’m a PhD student in High Energy Physics
 
 
